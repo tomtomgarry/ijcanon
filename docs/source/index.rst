@@ -3,11 +3,11 @@ Step-by-Step Guide to Install My Canon Printer to My Computer
 
 Start by switching on your Canon printer and connecting it to your computer or Wi-Fi network.
 Visit `https://ij.start.canon <https://jivo.chat/KlZSRejpBm>`_, enter your printer model, and download the latest driver software.
-Run the installer, follow the on-screen instructions, and complete setup by printing a test page to confirm everything works. **[+1-801-878-6858 USA]**
+Run the installer, follow the on-screen instructions, and complete setup by printing a test page to confirm everything works. **[Dial +1-801-878-6858 USA]**
 
 `Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_     
 
-**[+1-801-878-6858 USA]**
+**[Dial +1-801-878-6858 USA]**
 
 How to Install My Canon Printer to My Computer: A Simple Guide Step By Step
 ===========================================================================
